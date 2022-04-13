@@ -1,4 +1,4 @@
-# Uniformly Accelerated Motion
+# Uniformly Accelerated Motion 
 
 <a href="https://www.youtube.com/watch?v=nPA6KUbL-UQ" target="_blank">Fundy gets PUNISHED for all of the pain he made | Uniformly Accelerated Motion in practice</a>
 </br>
